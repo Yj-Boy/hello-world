@@ -6,3 +6,7 @@ i can do all things
 shout out to curry;
 
 this is sescond edit;
+
+eiyo this is my self git
+show out myself
+let is get it~
